@@ -1,1 +1,4 @@
-Write out some of your awesome attributes, and use emphasis (like bold or italics) to identify keywords, programming languages, or skills. 
+Bro I gotta tell you about this chick from last night:
+**Killer**
+She is from out of this world, like literally! She's an alien 😲
+🎉 🎉
